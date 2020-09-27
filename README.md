@@ -1,1 +1,1 @@
-### I'm learn G here.
+### I'm learning G here.
